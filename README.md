@@ -7,9 +7,7 @@
 - [Nintendo](https://my.nintendo.com/)
 - [Nintendo+Wallpapers](https://pastebin.com/WbwbSE8B)
 
-
-
-## 壁纸分布区域
+## 壁纸区域
 
 1. 日区
 2. 美区
