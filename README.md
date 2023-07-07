@@ -6,6 +6,7 @@
 
 - [Nintendo](https://my.nintendo.com/)
 - [Nintendo+Wallpapers](https://pastebin.com/WbwbSE8B)
+- [wallpapers](https://play.nintendo.com/media/wallpapers/)
 
 ## 壁纸区域
 
